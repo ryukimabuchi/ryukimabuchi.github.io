@@ -1,1 +1,0 @@
-# ryukimabuchi.github.io
